@@ -1,5 +1,7 @@
 ✨ _specjalne_ ✨ repozytorium 💡
 
+💫Innovator Of The Future💫
+
 🌍-- patryksobieranskikla --🪐
 
 🇵🇱 POLAND 🇵🇱
