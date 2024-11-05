@@ -38,7 +38,7 @@ Hakerklojs to platforma, która wzniesie technologie na nowy poziom. Moim celem 
 
  •	Elastyczność i dostosowanie: Każdy projekt tworzony na miarę, z myślą o potrzebach i wizjach naszych klientów – zamienimy ich marzenia w rzeczywistość.
 
-Dla nas niemożliwe nie istnieje! To właśnie z Hakerklojs Visionary Marketing ruszy maszyna, której nic nie zatrzyma. Jeśli masz wizję, jestem po to, aby ją zrealizować – nie ma dla mnie granic ani barier. Dążę do tego, aby każda współpracująca ze mną osoba mogła odnosić spektakularne sukcesy, budując imperium o globalnym zasięgu.
+Dla mnie niemożliwe nie istnieje! To właśnie z Hakerklojs Visionary Marketing ruszy maszyna, której nic nie zatrzyma. Jeśli masz wizję, jestem po to, aby ją zrealizować – nie ma dla mnie granic ani barier. Dążę do tego, aby każda współpracująca ze mną osoba mogła odnosić spektakularne sukcesy, budując imperium o globalnym zasięgu.
 
 Dołącz do mnie i twórz przyszłość – bo ze mną, sukces to tylko kwestia czasu! 🚀
 ____
