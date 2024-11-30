@@ -1,7 +1,6 @@
 ✨ _specjalne_ ✨ repozytorium 💡
 
 🇵🇱 POLAND 🇵🇱
-Oto przykładowa treść, którą możesz wkleić do sekcji „About” na GitHubie, aby podkreślić swoje zdolności, wizję i projekt Apex Infinity:
 
 ---
 
